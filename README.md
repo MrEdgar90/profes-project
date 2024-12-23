@@ -1,1 +1,1 @@
-Hijo de puta ya te dije que tengo se trata bien el proyecto dime bien
+Hijo de puta ya te dije que quiero saber de que se trata bien el proyecto, dime bien
